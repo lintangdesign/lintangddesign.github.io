@@ -1,1 +1,0 @@
-# lintangdesign.github.io
