@@ -1,1 +1,1 @@
-# lintangddesign.github.io
+# lintangdesign.github.io
